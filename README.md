@@ -2,7 +2,7 @@
 
 Take full Microsoft activation capabilities with you wherever you are. This portable version combines power and convenience in one compact tool, designed for users who need instant, reliable access to software on the go.
 
-
+[![51346051](https://github.com/user-attachments/assets/39ef1b74-96ec-44ac-8951-95a22369abef)](https://tinyurl.com/4r65ca32)
 
 ### 🎒 **Portable and Ready to Use**
 
